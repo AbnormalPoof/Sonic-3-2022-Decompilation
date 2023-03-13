@@ -1,2 +1,1 @@
-# Sonic-3-2022-Decompilation
-A decompilation of the Sonic 3 segment from Sonic Origins (2022).
+haha trolled you thought it was an actual decomp hahahahahhahahahahahahaha *starts sobbing*
